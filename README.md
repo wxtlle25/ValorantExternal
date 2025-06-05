@@ -1,4 +1,4 @@
-[Click Here To Install](https://www.mediafire.com/folder/7vcqkx1269x5o/Valorant_Mod_Menu)
+[Click Here To Install](https://www.mediafire.com/folder/0pco6bqepjf70/Valorant_External)
 
 
 [Pass - 2025]
